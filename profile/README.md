@@ -1,7 +1,8 @@
-## Welcome to YVY
+## Welcome to SLYTWORK
 
-![yvy_official_logos_yvy_black_logo](https://github.com/getyvy/.github/assets/54452490/b0f50009-5bcb-4dd1-b707-1fb4529bd91a)
+![SLYTWORK official cover photo](https://github.com/user-attachments/assets/dcdcd804-bb8d-463f-ab0f-d6e32f0cd6b0)
 
-YVY, which stands for "You vs You," is a revolutionary platform dedicated to empowering athletes to take control of their personal brand and showcase their talents. Our primary goal is to bring value to every athlete across the globe by providing a space where they can present themselves like pros, connect with an elite community, and attract sponsorships and other opportunities. At YVY, we believe that the greatest competition an athlete faces is within themselves, and we are committed to supporting their journey to excellence, both on and off the field. 
 
-#StayDope #YouVsYou #YVY
+Slytwork is the elite community for athletes driven to build their brand and showcase their journey. We provide a platform where athletes can represent themselves like pros, connecting their grind and growth with a community that values ambition and dedication. Inspired by the idea of "slight work," Slytwork embodies the relentless effort and hustle that goes into making success look effortless. Whether you’re chasing new goals or showcasing your achievements, Slytwork is where athletes take control of their brand and stay on working.
+
+#StayDope #Slytwork
